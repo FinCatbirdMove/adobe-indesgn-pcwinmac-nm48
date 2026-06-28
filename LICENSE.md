@@ -1,4 +1,4 @@
-# 
+# Avancé Adobe InDesign filtres pour Mac OS | Professionnel Adobe InDesign filtres pour PC Windows. Avec ressources liées et outils de symétrie — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
